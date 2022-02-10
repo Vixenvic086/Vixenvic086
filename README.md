@@ -1,0 +1,5 @@
+- 👋 Hello! My name is Vixenvic086 
+- 👀 I’m a spiritual and empathic soul
+- 🌱 I’m currently learning the indeph of files etc ...
+- 💞️ I’m always trying to find the light within the dark
+- 
